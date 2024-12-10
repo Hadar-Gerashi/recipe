@@ -1,5 +1,5 @@
 Quick Vegan Tacossss -the best and very tasty
-==================
+
 
 Ingredients:
 - 1 can of black beans, drained and rinsed

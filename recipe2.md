@@ -10,9 +10,9 @@ Ingredients:
 - 1 tsp ground cumin
 - 1/2 tsp turmeric
 - 1/2 tsp chili flakes (optional)
-- 1 tbsp olive oil
+- 7 tbsp olive oil
 - Salt and pepper to taste
-- Cooked rice or naan for serving
+- Coked rice or naan for serving
 
 Preparation:
 1. Heat the olive oil in a pan over medium heat. Add the diced onion and sauté until soft, about 5 minutes.

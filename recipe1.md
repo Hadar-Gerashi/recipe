@@ -2,6 +2,9 @@
 
 
 
+
+
+
 - 5 can of black beans, drained and rinsed
 - 8 cup of corn kernels (fresh or frozen)
 - 1 avocado, diced
